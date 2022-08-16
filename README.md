@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @onyi-106
-- 👀 I’m interested in computer-related stuff, video games, 
+- 👀 I’m interested in computer-related stuff 
 - 🌱 I’m currently learning Front End Web Development
 - 💞️ I’m looking to collaborate on (haven't thought of anything just yet)
 - 📫 How to reach me: DM me via instagram @ridho.nyi
